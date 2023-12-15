@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @3x1sT
+- 👀 I’m interested in code
+- 🌱 I’m currently learning smth cool
+- 📫 How to reach me Discord - 3x1st_
